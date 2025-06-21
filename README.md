@@ -1,6 +1,8 @@
 <h2>磁力猫官网入口 - 最牛的磁力链接搜索官方下载网站</h2>
 <p>磁力猫是一个功能强大且资源丰富的磁力链接搜索引擎，专注于为用户提供便捷的BT种子和磁力链接搜索服务。它通过先进的搜索算法和全球资源索引，能够快速定位用户所需的内容，包括电影、电视剧、音乐、软件、游戏等各类资源。磁力猫的界面设计简洁直观，用户无需复杂的操作即可轻松上手，同时支持多种语言切换，满足不同国家和区域用户的使用需求。此外，磁力猫还提供智能推荐功能，根据用户的搜索历史和偏好进行个性化推荐，进一步提升用户体验。作为一个老牌资源分享平台，磁力猫凭借其稳定的速度和丰富的资源库赢得了广大用户的信赖，是寻找高质量资源的理想选择。</p>
-<p><strong>一键访问：</strong><a href="https://www.litxdh.com/sites/ci-li-mao.html"><strong>磁力猫网最新地址</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://cilimao.litxdh.com"><strong>磁力猫网最新地址</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://cilisousuodaohang.litxdh.com"><strong>磁力导航大全</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://wangpanziyuan.pages.dev/"><strong>电子书/电影/音乐/漫画/游戏下载</strong></a></p>
 <p><strong>功能特点</strong></p>
 <p><strong>强大的搜索能力</strong><br>磁力猫采用全网资源搜索技术，覆盖广泛的网络资源，确保用户能够找到所需的各类资源。</p>
 <p><strong>简洁直观的界面设计</strong><br>平台界面简洁明了，操作流畅便捷，用户无需复杂步骤即可完成资源搜索和下载。</p>
